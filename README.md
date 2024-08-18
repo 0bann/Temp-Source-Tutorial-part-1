@@ -2,4 +2,4 @@
 
 Updated Weekly
 
-https://discord.gg/TcwjYdmr
+https://discord.gg/pasting
